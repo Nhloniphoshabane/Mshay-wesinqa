@@ -1,2 +1,2 @@
-# Mshay-wesinqa
+# Mshayi
 siya code la asidlali
